@@ -16,7 +16,7 @@
 ### Things to know: 
 
 - As of now, I am a committed office worker. Personally, I find it hard to be productive in my personal space - perhaps because my "home office" is my bedroom...
-- I am based in Essen, Germany. During my internship phases, you will most likely find me there. I love to travel, and therefore I will pursuit every opportunit that arises, including business trips and semesters/ internship phases abroad. New settings allow me to reinvent myself and further shape my personality.
+- I am based in Essen, Germany. During my internship phases, you will most likely find me there. I love to travel, and therefore I will pursuit every opportunity that arises, including business trips and semesters/ internship phases abroad. New settings allow me to reinvent myself and further shape my personality.
 - I am not an early bird, but I try to be. Thats why I aim to be in the office by 8:30am 🕣 and leave by 5:30 pm🕠. If possible, I prefer to cut 2 hours off on Fridays.
      - As the border between work and life vanishes, so does my behavior. I try to seperate the two (which itself is almost impossible, not connoting that negatively!), but if something does not leave my mind, I *will* send that message at 11pm. *Do not* feel obligated to answer, if you happen to notice it. Its just for my own sanity.
      - Therefore, you will almost always catch me on my work phone aswell. And because I am only a dual student, there is nothing exceptionally urgent I will be needed for :p.
