@@ -25,7 +25,7 @@
   - (Insert something about you switching between extroverted self and introverted self - ask yourself: what drains you ? what gives you energy? being alone or around??)
 - Sometimes in meetings, especially when it is about new stuff, I will just ~shut up~ be quiet and listen. Please do not interpret it wrong when I am not asking questions. If I feel like there is no specific direction I wanna proceed into, I will just absorb first!
 - I am a humorous person. Humor is, in a sense, edgy, so if I ever cross your personal boundaries, say so. I would never intentionally hurt anybodys feelings/ offend anyone. Also I am adjusting myself to the impression I have of you, to prevent incidents from happening!
-- I really value tansparency and communication. You can always be honest to me. I am not judgemental, because there is always much more than just the surface (you wouldnt just eat a burger bun, would u?) to almost anything. In the end, you always just interpret everything. And so do they.
+- I really value tansparency and communication. You can always be honest to me. I am not judgemental, because there is always much more than just the surface to almost anything. In the end, you always just interpret everything. And so do they.
 
 
 Credits: This whole idea belongs to my mentor Jan, who is, and I've only known him for 2 weeks, and exceptional fit and an awesome human.
