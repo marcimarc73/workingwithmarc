@@ -27,7 +27,7 @@
 - I really value tansparency and communication. You can always be honest to me. I am not judgemental, because there is always much more than just the surface to almost anything. In the end, you always just interpret everything. And so do they.
 
 
-Credits: This whole idea belongs to my mentor Jan, who is, and I've only known him for 2 weeks, and exceptional fit and an awesome human.
+Credits: This whole idea belongs to my mentor Jan, who is, and I've only known him for 3 weeks, an exceptional fit as my mentor and an awesome human.
 
 
 
