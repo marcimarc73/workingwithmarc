@@ -1,8 +1,8 @@
 # Working with Marc
 
-*Date of birth: August 2025 <sub>(No. Not talking about me)</sub>*
+*Date of creation: August 2025*
 
-*<sub>Status: single. /s</sub>  Document Status: Living, get a first glance at me. Changing as I do.*
+*Document Status: Living, get a first glance at me. Changing as I do.*
 
 ## A collection of things that might be useful when working with me.
 
